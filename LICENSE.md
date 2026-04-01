@@ -1,4 +1,4 @@
-
+dandys world sec Scripts Free: god & spd brings you the best free scripts for dandys world, featuring god and spd. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
